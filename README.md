@@ -23,4 +23,4 @@
 **📫 Connect with me**
 - Location: Haridwar, Uttarakhand
 - LinkedIn: https://www.linkedin.com/in/abhay-rajput-774862324/
-- Email: abhaykchauhan70@gmail.com
+- Email: Available via linkdin
